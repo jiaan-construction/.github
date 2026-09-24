@@ -11,7 +11,7 @@ We put MOM-registered tower crane operators on site and keep them there — day 
 
 On most of our projects the cranes belong to the main contractor. We are not a plant hire company. What we bring is the crew, the shift cover, and the compliance paperwork.
 
-**Since February 2022: 20 project sites · 12 main contractors · 13 of those sites are with contractors who came back to us.**
+**Since February 2022: 23 project sites · 13 main contractors · 14 of those sites are with contractors who came back to us.**
 
 ---
 
