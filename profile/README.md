@@ -1,17 +1,17 @@
 <h1 align="center">JIA AN CONSTRUCTION PTE. LTD.</h1>
 <p align="center">
-  <b>Tower crane operators and lifting crew for Singapore construction sites</b><br>
-  新加坡塔吊司机与吊装班组供应<br>
-  <sub>UEN 202204260G · Singapore · Since 2022 · bizSAFE Level 3</sub>
+  <b>Tower crane operators for Singapore construction sites</b><br>
+  新加坡塔吊司机供应<br>
+  <sub>UEN 202204260G · Singapore · Since 2022 · bizSAFE Level 3 · BCA CR01 · SLOTS CS08</sub>
 </p>
 
 ---
 
-We put MOM-registered tower crane operators on site and keep them there — day shift, night shift, or round the clock. Where the scope includes it, we also handle erection, climbing, dismantling and maintenance, and supply riggers and signalmen.
+We put MOM-registered tower crane operators on site and keep them there — day shift, night shift, or round the clock. Around that: relief and replacement operators, mobilisation planning for new sites, and the timesheet and claim paperwork behind each month's billing.
 
 On most of our projects the cranes belong to the main contractor. We are not a plant hire company. What we bring is the crew, the shift cover, and the compliance paperwork.
 
-**Since February 2022: 20 project sites · 12 main contractors · 13 of those sites are with contractors who came back to us.**
+**Since February 2022: 24 project sites · 14 main contractors · 14 of those sites are with contractors who came back to us.**
 
 ---
 
