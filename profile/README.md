@@ -27,8 +27,10 @@ Certificate copies are available on request. If you are pre-qualifying us as a v
 |---|---|
 | **[Safety acknowledgement](https://jiaan-construction.github.io/safety/)** | Crane operator safety briefing — read and sign before you go up |
 | **[Worker intake](https://jiaan-construction.github.io/worker-intake/)** | Submit your particulars and documents |
+| **[Worksite navigation](https://jiaan-construction.github.io/site-nav/)** | Find your site and start navigation — 工地导航 |
+| **[Employee handbook](https://jiaan-construction.github.io/handbook/)** | How the company works — 员工手册 |
 
-*These two are for JIA AN operators and new joiners. If you're not one of ours, they won't be of any use to you.*
+*These are for JIA AN operators and new joiners. If you're not one of ours, they won't be of any use to you.*
 
 ### 🗂 Also here
 
